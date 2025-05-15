@@ -21,4 +21,4 @@ I'm a software engineer who is passionate about making an impact through craftin
 </p>
 
 ## Get in touch!  
-If you're looking for a reliable and hardworking fresh graduate *(as of May 2024!)* with an undying drive to learn, or just want to say hi and connect, feel free to reach out to me via the socials on my profile!
+If you'd like to say hi and connect, feel free to reach out to me via the socials on my profile!
